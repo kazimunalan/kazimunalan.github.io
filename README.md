@@ -1,1 +1,0 @@
-# kazimunalan.github.io
